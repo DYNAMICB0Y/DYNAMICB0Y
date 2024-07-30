@@ -1,15 +1,19 @@
-![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&weight=600&size=31&duration=4500&pause=1000&color=black&multiline=true&width=453&height=100&lines=DEVIL+IS+A+GAY)
+![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&weight=600&size=31&duration=4500&pause=1000&color=red&multiline=true&width=453&height=100&lines=HAPPY+BIRTHDAY+CUTIE+PIE)
 
-<h4 align="center">चांदनी रात थी, दौड़ रहा था घोड़ा | बिना सर पैर की शायरी सुन रहा है मां का लौड़ा <br> KI NIKAL GYI HAI GARMI AANE WALI HAI THAND KI NIKAL GYI HAI GARMI AA GYI HAI THAND AUR TU BKL MUH ME LELE MERA LUND <br> BOL BRO KAISA LGA HEHE  </h4>
+<h4 align="center">HAPPY BIRTHDAY TO THE MOST AMAZING PERSON!<br>MAY THIS SPECIAL DAY BRING YOU:<br>JOY THAT OVERFLOWS FROM YOUR HEART!
+LOVE THAT SURROUNDS YOU FROM EVERY DIRECTION!
+AND ALL YOUR FAVORITE THINGS TO MAKE YOUR DAY EXTRA SPECIAL! <br>MAY THIS YEAR BE FILLED WITH:
+ <br>UNFORGETTABLE MOMENTS THAT YOU'LL TREASURE FOREVER!
+LAUGHTER THAT FILLS YOUR LIFE WITH HAPPINESS!
+AND ADVENTURE THAT TAKES YOU TO NEW AND EXCITING PLACES!  </h4>
 
-# 🤡『 # GAY DEVIL  』🤡
-<p align="centre"><img  width="40%" height="60%" img src="https://telegra.ph/file/97f8c15faa85362af1949.jpg" /></p>
+#  🎉 『 # HAPPY BIRTHDAY ANURADHA JI  』 🎉
 
+![image](https://github.com/user-attachments/assets/b2fe9776-51a9-45f3-8560-b25ded0d2efb)
 
 
 _𝗬𝗢𝗨 𝗞𝗡𝗢𝗪 𝗪𝗛𝗢 𝗠𝗔𝗗𝗘 𝗧𝗛𝗜𝗦 𝗠𝗔𝗗𝗘 𝗕𝗬 [[DYNAMICB0Y](http://t.me/DYNAMICB0Y))_
 
 
 
-
- <marquee behavior="scroll" direction="left"> DEVIL TU GAY HAI </marquee>
+  <img src="https://readme-typing-svg.herokuapp.com?color=255,255,255&width=420&lines=🎉HAPPY+BIRTHDAY+CUTIE+PIE“🎉">
